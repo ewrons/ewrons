@@ -8,7 +8,7 @@ $${\color{#2c3252}18yo}$$  ㅤ $${\color{#314f75}any}$$ $${\color{#316d75}prns}$
 ㅤ
 
 <p align="left">
- <a href= "https://kralie.atabook.org"> ata</a> ㅤ $${\color{#558A66}⊹}$$ ㅤ <a href= "https://pronouns.cc/@ahri">straw</a> ㅤ $${\color{#B0A271}⊹}$$ ㅤ <a href= "https://rentry.co/2theark">rentry</a> ㅤ $${\color{#C9CC95}⊹}$$ ㅤ <a href= "https://www.tumblr.com/eurolarp?source=share">tmblr</a>  
+ <a href= "https://kralie.atabook.org"> ata</a> ㅤ $${\color{#558A66}⊹}$$ ㅤ <a href= "https://pronouns.cc/@ahri">straw</a> ㅤ $${\color{#B0A271}⊹}$$ ㅤ <a href= "https://rentry.co/2theark">rentry</a> ㅤ   
 </p>
 ㅤ
 
