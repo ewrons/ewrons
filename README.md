@@ -8,7 +8,7 @@ $${\color{#2c3252}18yo}$$  ㅤ $${\color{#314f75}any}$$ $${\color{#316d75}prns}$
 ㅤ
 
 <p align="left">
- <a href= "https://kralie.atabook.org"> ata</a> ㅤ $${\color{#558A66}⊹}$$ ㅤ <a href= "https://kraliealex.straw.page/">straw</a> ㅤ $${\color{#B0A271}⊹}$$ ㅤ <a href= "https://rentry.co/wip">rentry</a> ㅤ   
+ <a href= "https://kralie.atabook.org"> ata</a> ㅤ $${\color{#558A66}⊹}$$ ㅤ <a href= "https://kraliealex.straw.page/">straw</a> ㅤ $${\color{#B0A271}⊹}$$ ㅤ <a href= "https://rentry.co/chudville">rentry</a> ㅤ   
 </p>
 ㅤ
 
