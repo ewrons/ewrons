@@ -13,6 +13,7 @@ $${\color{#2c3252}18yo}$$  ㅤ $${\color{#314f75}any}$$ $${\color{#316d75}prns}$
 ㅤ
 
 <p align="left">
-$${\color{#333665}rip}$$ $${\color{#384d75}alex}$$ $${\color{#385d75}kralie}$$ $${\color{#385d75}you}$$ $${\color{#387075}wouldve}$$  $${\color{#387565}loved}$$ $${\color{#387548}fiona}$$ $${\color{#5a7538}apple}$$
+$${\color{#333665}rip}$$ $${\color{#384d75}alex}$$ $${\color{#385d75}kralie}$$ $${\color{#385d75}you}$$ $${\color{#387075}wouldve}$$
+ $${\color{#387565}loved}$$ $${\color{#387548}fiona}$$ $${\color{#5a7538}apple}$$
 ㅤ
 
