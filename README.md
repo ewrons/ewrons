@@ -17,3 +17,4 @@ $${\color{#333665}rip}$$ $${\color{#384d75}alex}$$ $${\color{#385d75}kralie}$$ $
  $${\color{#387565}loved}$$ $${\color{#387548}fiona}$$ $${\color{#5a7538}apple}$$
 ㅤ
 
+
